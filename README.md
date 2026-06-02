@@ -1,0 +1,2 @@
+# privacy_policy_mrknowledgeshare
+privacy_policy_mrknowledgeshare
